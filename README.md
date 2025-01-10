@@ -1,4 +1,7 @@
 ## sex
+<p align="center">
+      <img width="600" height="300" src="https://sun9-66.userapi.com/impg/wXjyvewEcTW4zFR7IiqbwuwUjocNCVRFiZLR7w/wEbuq4juOMM.jpg?size=686x386&quality=95&sign=0798df2a007c2ad39bb2b72cf65984d4&type=album">
+</p>
 
 <!--
 **mora-xxx/mora-xxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
