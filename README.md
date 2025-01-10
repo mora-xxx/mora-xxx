@@ -6,6 +6,7 @@
 <h4 align="center"> SISSIES DNI SISSIES DNI SISSIES DNI SISSIES DNI SISSIES DNI SISSIES DNI 
 
 ## <h4 align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся
+## <h4 align="center"> ивет #2] Причал выходит на пуф я которы сигма бс мастер бразил фонк приостановка темный фон eблo троллфейс тряска череп
 
 <p align="center">
       <img width="200" height="200" src="https://sun9-70.userapi.com/impg/-u2nRB2qf9zMfoDifCAMnQXGWGnr8nrQ_bYo_g/C7_n_rWPyl0.jpg?size=736x736&quality=95&sign=14e9e2696ac11e847c33ab13221c72c0&type=album">
