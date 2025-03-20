@@ -5,6 +5,7 @@
 
 <h4 align="center"> SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI 
 
+<p [INFO(https://t.me/morainfo) </p>
 ## <h4 align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся
 
 <p align="center">
