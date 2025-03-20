@@ -3,6 +3,7 @@
       <img width="400" height="220" src="https://sun9-80.userapi.com/impg/NXkdGFsQVs3ZQzCf3cl01-b0KlG0Fyf-15GJ2Q/rWb8Kno3nK4.jpg?size=1920x1080&quality=95&sign=ee07db4e21f8966c4a784d6cef01ff2f&type=album">
 </p>
 
+<h4 align="center"> [INFO](https://t.me/morainfo) 
 <h4 align="center"> SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI ٠ SISSIES DNI 
 
 ## <h4 align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся
