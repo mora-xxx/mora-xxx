@@ -8,6 +8,8 @@
       <img width="300" height="15" src="https://i.postimg.cc/PrdV9r3g/g7gqwu.png">
 </p>
 
+![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=red&label=секс+порно)
+
 <p align="center">
       <img width="200" height="200" src="https://sun9-46.userapi.com/impg/dRYJ9iRA86xRbhYoYegMOdz1f5zaFbOolNTWUA/hT508S_CxIU.jpg?size=366x366&quality=95&sign=9fe384db4090047f184b41b0cc59b002&type=album">
 </p>
