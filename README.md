@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ [INFO](https://t.me/morainfo) 
 <p align="center">
-      <img width="500" height="45" src="https://i.postimg.cc/mr6G21q1/lgqkya.png">
+      <img width="500" height="45" src="https://i.postimg.cc/fLtQ3Tn2/ln7l04.png">
 </p>
 
 <p align="center">
