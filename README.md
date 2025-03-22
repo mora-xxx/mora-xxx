@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ────  
 <p align="center">
-      <img width="300" height="15" src="https://i.postimg.cc/PrdV9r3g/g7gqwu.png">
+      <img width="300" height="15" src="https://i.postimg.cc/fLtQ3Tn2/ln7l04.png">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=cd9390&label=✦)
