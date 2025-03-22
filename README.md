@@ -5,6 +5,6 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ──── 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=cd9390&label=✦)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=cd9390&label=✦)
 ㅤ
 
