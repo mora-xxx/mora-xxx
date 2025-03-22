@@ -5,9 +5,9 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ────  
 <p align="center">
-      <img width="400" height="30" src="https://i.postimg.cc/PrdV9r3g/g7gqwu.png">
+      <img width="300" height="15" src="https://i.postimg.cc/PrdV9r3g/g7gqwu.png">
 </p>
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https://github.com/mora-xxx i/mora-xxx i&label=Visitors&countColor=%23263759)
+
 <p align="center">
       <img width="200" height="200" src="https://sun9-46.userapi.com/impg/dRYJ9iRA86xRbhYoYegMOdz1f5zaFbOolNTWUA/hT508S_CxIU.jpg?size=366x366&quality=95&sign=9fe384db4090047f184b41b0cc59b002&type=album">
 </p>
