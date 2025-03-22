@@ -11,5 +11,5 @@
 </p>
 ㅤ
 <p align="center">
-      <img width="200" height="25" src="https://64.media.tumblr.com/6b3659002e1d9a37d13d9184be313cd5/b69c01f137587a87-0d/s400x600/41c0b2d7851d7b273b448b9ab9e3d4ec4ca0fdf7.pnj">
+      <img width="500" height="45" src="https://64.media.tumblr.com/6b3659002e1d9a37d13d9184be313cd5/b69c01f137587a87-0d/s400x600/41c0b2d7851d7b273b448b9ab9e3d4ec4ca0fdf7.pnj">
 </p>
