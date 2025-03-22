@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ──── 
 
 <p align="center">
-      <img width="200" height="200" src="https://sun9-14.userapi.com/impg/zMuBdzjcD-mA-uyn-ps5MLsAkt4Sj50_gj75tg/u3YSUHO82l8.jpg?size=933x800&quality=95&sign=2c87d217f90d20b881a4c839e9a01391&type=album">
+      <img width="100" height="90" src="https://sun9-14.userapi.com/impg/zMuBdzjcD-mA-uyn-ps5MLsAkt4Sj50_gj75tg/u3YSUHO82l8.jpg?size=933x800&quality=95&sign=2c87d217f90d20b881a4c839e9a01391&type=album">
 </p>
 ㅤ
 <p align="center">
