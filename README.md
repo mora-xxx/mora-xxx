@@ -5,7 +5,7 @@
 </p>
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ──── 
-
+<div align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся </div>
 
 <p align="center">
       <img width="200" height="25" src="https://i.postimg.cc/fLtQ3Tn2/ln7l04.png">
