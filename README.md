@@ -1,6 +1,6 @@
 ## 　　　　　　　　　 　　　　　　　 　 69_SEX_69
 <p align="center">
-      <img width="500" height="350" src="https://sun9-64.userapi.com/impg/G3wLjUhfcI8afyB5OiiGqjflelH_aAPRJ0oiyQ/aauLefuusDA.jpg?size=736x552&quality=95&sign=6f6260858e413de4378d206592c0c248&type=album">
+      <img width="500" height="350" src="https://sun9-12.userapi.com/impg/7IfrogkqTMuNJxQtFl9i0CHbwA7Y5IwG9iSj9w/ZdXkXMH7__U.jpg?size=736x414&quality=95&sign=c9adb70512d731edab658ee0a2c975ac&type=album">
 </p>
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ [INFO](https://t.me/morainfo) 
