@@ -1,6 +1,6 @@
 ## 　　　　　　　　　 　　　　　　　 　 69_SEX_69
 <p align="center">
-      <img width="500" height="320" src="https://sun9-64.userapi.com/impg/G3wLjUhfcI8afyB5OiiGqjflelH_aAPRJ0oiyQ/aauLefuusDA.jpg?size=736x552&quality=95&sign=6f6260858e413de4378d206592c0c248&type=album">
+      <img width="500" height="350" src="https://sun9-64.userapi.com/impg/G3wLjUhfcI8afyB5OiiGqjflelH_aAPRJ0oiyQ/aauLefuusDA.jpg?size=736x552&quality=95&sign=6f6260858e413de4378d206592c0c248&type=album">
 </p>
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ [INFO](https://t.me/morainfo) 
@@ -9,5 +9,5 @@
 ## <h4 align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся
 
 <p align="center">
-      <img width="200" height="200" src="https://i.pinimg.com/736x/c3/41/65/c34165cd3808d957536f2e739522881b.jpg">
+      <img width="200" height="200" src="https://sun9-46.userapi.com/impg/dRYJ9iRA86xRbhYoYegMOdz1f5zaFbOolNTWUA/hT508S_CxIU.jpg?size=366x366&quality=95&sign=9fe384db4090047f184b41b0cc59b002&type=album">
 </p>
