@@ -5,13 +5,11 @@
 </p>
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ  ────୨ৎ────   [INFO](https://t.me/morainfo)   ────୨ৎ──── 
-<div align="center"> 17:35[*'#%#%"#" #"] Где мора блять куда страх хср зоны потерялся </div>
 
+<p align="center">
+      <img width="200" height="200" src="https://sun9-14.userapi.com/impg/zMuBdzjcD-mA-uyn-ps5MLsAkt4Sj50_gj75tg/u3YSUHO82l8.jpg?size=933x800&quality=95&sign=2c87d217f90d20b881a4c839e9a01391&type=album">
+</p>
+ㅤ
 <p align="center">
       <img width="200" height="25" src="https://i.postimg.cc/fLtQ3Tn2/ln7l04.png">
-</p>
-
-
-<p align="center">
-      <img width="200" height="200" src="https://sun9-46.userapi.com/impg/dRYJ9iRA86xRbhYoYegMOdz1f5zaFbOolNTWUA/hT508S_CxIU.jpg?size=366x366&quality=95&sign=9fe384db4090047f184b41b0cc59b002&type=album">
 </p>
