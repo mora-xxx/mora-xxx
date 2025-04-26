@@ -9,4 +9,6 @@
 ㅤ
 <p align="center">
       <img width="99" height="56" src="https://64.media.tumblr.com/a6f1ac5fce299cc810afd632f43a45dd/1ca8f2696de80f42-61/s100x200/0e826ae2f5190362adf6efc077d5dbace6c7697f.gifv">
+</p> <p align="center">
+      <img width="99" height="56" src="https://64.media.tumblr.com/a22987361a7eef61d83250e77e6fba28/1ca8f2696de80f42-85/s100x200/80213d20a1bdb8eecfa2ece5d278b9de4b191af6.gifv">
 </p>
