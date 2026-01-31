@@ -4,7 +4,7 @@
 </p>
 
 
- ────୨ৎ────  [strawpage](https://mor4mrucks.straw.page/) [ata](https://xmora.atabook.org/) [tg info](https://t.me/morainfo)   ────୨ৎ──── 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://mor4mrucks.straw.page/) ୨ৎ [ata](https://xmora.atabook.org/) ୨ৎ [tg info](https://t.me/morainfo)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ  ㅤ![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=cd9390&label=✦)
