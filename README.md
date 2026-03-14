@@ -1,6 +1,6 @@
 ## 　　　　　　　　　 　　　　　　　 　 69_SEX_69
 <p align="center">
-      <img width="540" height="435" src="https://psv4.userapi.com/s/v1/d/LEB3GPG8eapQCV2OSovpkqILvUB8p_dMc0Wa53ya3i2GcZ4tb54XLohO16DAfRd7KLwB9AN1xC6wuyvhp_PJ29nvN4C5skdH_W-tsH9fc2EfVooT783yxg/ila.png">
+      <img width="540" height="435" src="https://psv4.userapi.com/s/v1/d2/mnewJxtbK7Ns5nhhB-07TPRdyHjNt9q27h72MVsCA2VyWYMIq2Z-uO7Ww8AyrxtHD6hGiEkSw1STyBYDpl5nlnr3C-Qj-h6CZQmxT9xFLa8z1j74FkHgkpzK69J2hKN_Xx_NJfwe-igy/32t623.png">
 </p>
 
 
