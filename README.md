@@ -1,7 +1,7 @@
 ## 　　　　　　　　　 　　　　　　　 　 69_SEX_69
 
 <p align="center">
-      <img width="766" height="187" src="https://psv4.userapi.com/s/v1/d2/P7dvW_S1lvVeYTqdqjZ5DTtzZzl7pcN4eR1hLASDumSZaO-iZgVadkaWtiz5pKAlnQpzdVcu5iqoOuY5e0sW7qYPgshGtLWwo41IgDdJSyoGD705XyC-EAlX9s89MEtEaxfRf9WJuSYC/Illustration61_bolshe_ra.png">
+      <img width="766" height="187" src="https://psv4.userapi.com/s/v1/d2/mjmLtStxTWiXZWaWuh2mNM4miF4MlcO5YIf-tIIHTvFcYo3LW7NI19g1bQCNCWhqv9r85hKa-K2dMh1eT_JjNLSLuJo9YS-gBhS5G6XjRVv86-3-8tUsoyVWT4Qinz8--Ru4XUFDQj-m/Illustration5gsw.png">
 </p>
 
 
