@@ -7,7 +7,7 @@
       <span style="font-size: 12px;">cr lucidkana</span>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://mor4mrucks.straw.page/)ㅤ ୨ৎ ㅤ[ata](https://xmora.atabook.org/)ㅤ ୨ৎㅤ [tg info](https://t.me/morainfo)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://mor4mrucks.straw.page/)ㅤ :: ㅤ[ata](https://xmora.atabook.org/)ㅤ ::ㅤ [tg info](https://t.me/morainfo)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ  ㅤ![](https://komarev.com/ghpvc/?username=mora-xxx&style=for-the-badge&color=cd9390&label=✦)
