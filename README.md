@@ -1,7 +1,7 @@
 ## 　　　　　　　　　 　　　　　　　 　 69_SEX_69
 
 <p align="center">
-      <img width="766" height="187" src="https://psv4.vkuserphoto.ru/s/v1/d2/p3a5bhbgDxxWb5vjuCLg0dQrfJbYnVRJskn8MaCq8Vdx9FSrqv_6aQZVACmY2C-fIX0NOgGbrlqjhjueEXhyKZdLSQyMGN6kaZTLIDNvPXCueuhQAT7AKHsTjbn_-bLrCGGSfzOZTnc3/GGntZvwbEAAeXlq.png">
+      <img width="1126" height="376" src="https://psv4.vkuserphoto.ru/s/v1/d2/ARlZOIWlj3N0rz41twiW7IeUvHwRlCmox1UEc6qTn0OU1M6XQ1kEqVDkusQzN0R0gWJNIjrTg1upYNCH3sI4kaJolt-9j_aiqKcPfq-XmO83MUsui32q1IfhyNc9ieI6C7O8shvzAzZE/HKbnB0Va8AAdj4w33232.png">
 </p>
 
 
